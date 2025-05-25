@@ -68,6 +68,12 @@
 - 📩 Email: shefaulkarim@outlook.com
 - 📂 ResearchGate: researchgate.net/profile/Shefa-Karim
 - 📚 Google Scholar: scholar.google.com/citations?user=UToukXUAAAAJ&hl=en
+  
+- 🌐 Portfolio:(https://shefaulkarim.com)  
+- 💼 LinkedIn:(https://www.linkedin.com/in/shefa-linkdin/)  
+- 📩 Email: shefaulkarim@outlook.com  
+- 📂 ResearchGate:(https://www.researchgate.net/profile/Shefa-Karim)  
+- 📚 Google Scholar:(https://scholar.google.com/citations?user=UToukXUAAAAJ&hl=en)
 
 ---
 
